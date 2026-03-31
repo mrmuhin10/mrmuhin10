@@ -5,10 +5,11 @@
 
 As an SEO Expert and Founder of Digital Solutions IT, I specialize in diagnosing and resolving complex search engine visibility issues to help businesses recover lost traffic and optimize their sales funnels. Since 2023, my team and I have successfully delivered over 20 international and local projects, focusing on technical SEO, toxic backlink removal, and content strategy. Recently, we elevated a UK-based client's site from 7th to 2nd position in just two and a half months. If you are ready to dominate search rankings and drive sustainable revenue growth, 
 
-📧 Let's connect at mrmuhin10x@gmail.com.
-📞WhatsApp: +8801303673523 
-Visit My Personal Website <a href="https://muhinahmed.com/">SEO Expert in Bangladesh</a>
-Skills: Search Engine Optimization (SEO) • Local SEO • Answer Engine Optimization (AEO)  • Generative Engine Optimization (GEO) •
+📧 Let's connect at mrmuhin10x@gmail.com •
+📞WhatsApp: +8801303673523 •
+Visit My Personal Website <a href="https://muhinahmed.com/">SEO Expert in Bangladesh</a> •
+
+My Core Skills: Search Engine Optimization (SEO) • Local SEO • Answer Engine Optimization (AEO)  • Generative Engine Optimization (GEO) • WordPress Developmet •
 
 
 
