@@ -11,7 +11,7 @@ If you're looking to improve your rankings, increase organic traffic, and grow y
 
 
 
-##### **My Core Skills:** Search Engine Optimization (SEO) • Local SEO • Answer Engine Optimization (AEO)  • Generative Engine Optimization (GEO) • WordPress Developmet •
+##### **Core Skills: Search Engine Optimization (SEO) • Local SEO • Answer Engine Optimization (AEO)  • Generative Engine Optimization (GEO) • WordPress Developmet •**
 
 ## My Services
 - Technical SEO
@@ -36,7 +36,7 @@ If you're looking to improve your rankings, increase organic traffic, and grow y
 - Local & Global Clients
 - Proven Results
 - Data-Driven Strategies
-- Multiple Industry Served
+- Multiple Industries Served
 
 ### Let’s Work Together!
 - 📧 Email: mrmuhin10x@gmail.com 
