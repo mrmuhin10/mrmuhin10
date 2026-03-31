@@ -7,7 +7,7 @@ As an SEO Expert and Founder of Digital Solutions IT, I specialize in diagnosing
 
 
 
-#####- My Core Skills: Search Engine Optimization (SEO) • Local SEO • Answer Engine Optimization (AEO)  • Generative Engine Optimization (GEO) • WordPress Developmet •
+##### - My Core Skills: Search Engine Optimization (SEO) • Local SEO • Answer Engine Optimization (AEO)  • Generative Engine Optimization (GEO) • WordPress Developmet •
 
 ## My Services
 - Technical SEO
@@ -29,9 +29,10 @@ As an SEO Expert and Founder of Digital Solutions IT, I specialize in diagnosing
 - Data-Driven Strategies
 
 ### Contact For Details
--📧 Let's connect at mrmuhin10x@gmail.com 
--📞WhatsApp: +8801303673523
--Visit My Personal Website <a href="https://muhinahmed.com/">SEO Expert in Bangladesh</a> 
+- 📧 Let's connect at mrmuhin10x@gmail.com 
+- 📞WhatsApp: +8801303673523
+- Visit My Personal Website <a href="https://muhinahmed.com/">SEO Expert in Bangladesh</a>
+  
 
 
 
