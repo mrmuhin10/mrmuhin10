@@ -28,15 +28,12 @@ If you're looking to improve your rankings, increase organic traffic, and grow y
 - WordPress | Shopify
 - Rank Math | Yoast SEO
 
-## Proven Results!
-- 4+ Years Experience
-- Team Leader
-- Friendly Communication
-- Helped 30+ Clients Increase Organic Traffic
-- Local & Global Clients
-- Proven Results
-- Data-Driven Strategies
-- Multiple Industries Served
+## ⚡Proven Results!
+- 🎯 **4+ Years** of proven SEO expertise
+- 💼 **Team Leader**
+- 📈 **Helped 30+ Clients** Increase Organic Traffic
+- 🌍 **30+ Clients** across local and international markets
+
 
 ### Let’s Work Together!
 - 📧 Email: mrmuhin10x@gmail.com 
