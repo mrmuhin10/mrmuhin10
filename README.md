@@ -1,7 +1,8 @@
 ![I'm an SEO Expert in Bangladesh ](https://muhinahmed.com/wp-content/uploads/2026/03/Muhin-Ahmed-1.jpg)
-# This Is Muhin Ahmed
-#### I'm an SEO Expert in Bangladesh 
+# Hey there! 👋 I'm Muhin Ahmed
+**SEO Expert & Founder of Digital Solutions IT**
 
+**Helping businesses recover lost traffic and improve rankings through data-driven SEO strategies.**
 
 As an SEO Expert and Founder of Digital Solutions IT, I help businesses identify and fix search visibility issues to recover lost traffic and improve conversions. Since 2022, my team and I have successfully completed 30+ local and international projects, with a strong focus on technical SEO, toxic backlink cleanup, and content strategy.
 
